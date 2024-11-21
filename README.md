@@ -1,1 +1,1 @@
- ![](https://komarev.com/ghpvc/?username=20waystokillsomeone&color=e8ddb5&label=freakshow&style=plastic&abbreviated=true)‎
+ ![](https://komarev.com/ghpvc/?username=20waystokillsomeone&color=a6808c&label=freakshow&style=plastic&abbreviated=true)‎
