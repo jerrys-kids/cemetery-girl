@@ -4,3 +4,6 @@
 
 ‎
  ![](https://komarev.com/ghpvc/?username=20waystokillsomeone&color=bb8588&label=DomesticBliss&style=plastic&abbreviated=true)
+
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pirata+One&size=58&pause=1012&color=931E1B&width=435&height=92&lines=Voodoo+For+Dummies)](https://git.io/typing-svg)
