@@ -3,7 +3,7 @@
 
 
 ‎
- ![](https://komarev.com/ghpvc/?username=jerrys-kids&color=cc9f5b&label=lol&style=plastic&abbreviated=true)
+ ![](https://komarev.com/ghpvc/?username=20waystokillsomeone&color=cc9f5b&label=lol&style=plastic&abbreviated=true)
 
 
 
